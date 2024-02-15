@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning engineering from pune university
 - 💞️ I’m looking to collaborate with coding communities
-- 📫 payal.sawant00@gmail.com
+- 📫 payal.sawant001@gmail.com
 - 😄 Pronouns:payal
 
 
